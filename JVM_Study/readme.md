@@ -1,1 +1,1 @@
-Photos for Ch.12 Summary
+Photos for Summary
